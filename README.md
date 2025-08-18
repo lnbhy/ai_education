@@ -4,7 +4,7 @@
 
 
 
-作品演示视频：https://pan.baidu.com/s/1E3c-NKQdKmkmNp3-Aa9t7g?pwd=jnkn 提取码: jnkn
+作品演示视频（创新点说明+功能演示）：https://pan.baidu.com/s/1E3c-NKQdKmkmNp3-Aa9t7g?pwd=jnkn 提取码: jnkn
 
 
 

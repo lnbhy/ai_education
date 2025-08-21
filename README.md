@@ -4,8 +4,12 @@
 
 
 
-作品演示视频（创新点说明+功能演示）：https://pan.baidu.com/s/1E3c-NKQdKmkmNp3-Aa9t7g?pwd=jnkn 提取码: jnkn
+作品演示视频（创新点说明+功能演示）：
+通过网盘分享的文件：演示视频.mp4 
+链接: https://pan.baidu.com/s/1_09gV8jPdfGDpPbucNBINw?pwd=isrt 提取码: isrt
 
 
 
-作品演示ppt:https://pan.baidu.com/s/1kAfbK8zVnlGIMhrWIqYQYQ?pwd=mw6w 提取码: mw6w
+作品演示ppt:
+通过网盘分享的文件：愚戏·教学实训智能体产品方案介绍.pptx
+链接: https://pan.baidu.com/s/1PQRri9NBjnfzCOMpQiVRiw?pwd=izjw 提取码: izjw
